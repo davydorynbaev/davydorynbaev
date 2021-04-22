@@ -1,1 +1,1 @@
-I honestly don't even like computers that much.
+I use Arch btw.
