@@ -1,1 +1,1 @@
-Mintchad.
+Gentoo supremacy. Hail suckless.
