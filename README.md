@@ -1,1 +1,1 @@
-Gentoo supremacy. Hail suckless.
+Hi
