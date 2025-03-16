@@ -1,1 +1,1 @@
-Hi and welcome.
+Welcome!
